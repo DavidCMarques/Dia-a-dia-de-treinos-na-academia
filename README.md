@@ -1,2 +1,5 @@
-# Dia-a-dia-de-treinos-na-academia
-Séries passadas pelo personal.
+# Dia-a-dia-de-treinos-na-academia :muscle:
+
+
+
+Séries passadas pelo personal. 
